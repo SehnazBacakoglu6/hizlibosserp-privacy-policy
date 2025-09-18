@@ -1,1 +1,1 @@
-# hizlibosserp-privacy-policy
+# HızlıBoss ERP Gizlilik Politikası
